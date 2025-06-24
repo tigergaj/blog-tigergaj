@@ -7,7 +7,6 @@ My name is Lewa, I'm a 25 year old queer artist with way too dang many thoughts 
 ## Directory
 - [[Creative projects/blog/The Apparatus/The Apparatus\|The Apparatus]]
 - [[Creative projects/blog/NYWC/Lunar Eclipse 2025-03-13/Lunar Eclipse 2025-03-14\|Lunar Eclipse 2025-03-14]]
-- [[Creative projects/Come Out/Come Out/I ask that you understand/I ask you to understand\|I ask you to understand]]
 - [[Creative projects/blog/I've been looking at this person in the mirror\|I've been looking at this person in the mirror]]
 
 ## My most recent post:
