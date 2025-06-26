@@ -37,7 +37,7 @@ Following the year one Destiny 2 release, an expansion later that year titled Cu
 
 *"How could I have missed this? It's the small moments, the simple pleasures that matter. They're all I can think about now. Food and drink aren't mere sustenance. They're a reminder that I am alive.*"
 
-Calus is right. Some tell me that constant reminders of impermanence causes them to feel despair. I find no such despair in it. I treat my time like a budget, I only have so much of it and I get to spend it on whatever I want. Not only does this mentality free me from yet another thing to worry about but it allows me to make progress. Time can only move forward, so do not let unknown variables control you. You will never know all the variables.
+Calus is right. Some tell me that constant reminders of impermanence causes them to feel despair. I find no such despair in it. I treat my time like a budget, I only have so much of it and I get to spend it on whatever I want. Not only does this mentality free me from worry, but it allows me to make progress. Time can only move forward, you will never know all the variables so don't let them control you. Be like Emperor Calus, smell the flowers. 🪻
 
 </div></div>
 
