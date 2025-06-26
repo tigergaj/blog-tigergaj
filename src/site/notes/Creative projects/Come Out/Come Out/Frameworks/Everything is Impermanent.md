@@ -3,7 +3,7 @@
 ---
 
 ## Impermanence
-Shortly following the release of Destiny 2, the playerbase had leveled their characters and collected some new shiny loot. Then the first raid for destiny 2 launched. It was called "The Leviathan". A massive white and gold ship with a mouth designed to Pdevour small planets has entered the sol, approaching Nessus. An individual by the title Emperor Calus has created this vessel to grind planets down to dust to make galactic wine. He wears his hedonism on his sleeve. The entire ship is gold plated.
+Shortly following the release of Destiny 2, the playerbase had leveled their characters and collected some new shiny loot. Then the first raid for destiny 2 launched. It was called "The Leviathan". A massive white and gold ship with a mouth designed to devour small planets has entered the sol, approaching Nessus. An individual by the title Emperor Calus has created this vessel to grind planets down to dust to make galactic wine. He wears his hedonism on his sleeve. The entire ship is gold plated.
 
 ![LeviathanConcept_1.png](/img/user/Creative%20projects/Blog/LeviathanConcept_1.png)
 But if you read the lore books, you'll find that Calus had not simply stumbled upon being the emperor of a self sustaining loyalist faction surviving bountifully in deep space. The Sword from the raid had a lore tab titled "[It Stared Back](https://www.ishtar-collective.net/entries/it-stared-back#emperor-calus)". And it delivers a catalyst for why he started building his magnificent Empire.
