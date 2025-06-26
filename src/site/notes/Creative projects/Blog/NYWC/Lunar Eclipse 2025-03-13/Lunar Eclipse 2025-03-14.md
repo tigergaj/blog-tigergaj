@@ -38,3 +38,4 @@ and lastly, these pictures opposite to chronological. so the most recent are the
 ![IMG_20250313_202453.jpg](/img/user/IMG_20250313_202453.jpg)
 ![IMG_20250313_202450.jpg](/img/user/IMG_20250313_202450.jpg)
 ![Screenshot_20250313-133918.png](/img/user/Screenshot_20250313-133918.png)
+[[New York Weather Check 1-2-25\|New York Weather Check 1-2-25]]
