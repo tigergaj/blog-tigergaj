@@ -20,5 +20,6 @@ Do not allow loss to toy with your emotions. The nature of things is that you lo
 Following the year one Destiny 2 release, an expansion later that year titled Curse of Osiris added a "raid lair" to the Leviathan. This meant new loot and that meant new lore tabs on the loot and thusly we get the entry; [I am Alive](https://www.ishtar-collective.net/entries/i-am-alive). Calus has found purpose, and he is enjoying his bounty. 
 
 *"How could I have missed this? It's the small moments, the simple pleasures that matter. They're all I can think about now. Food and drink aren't mere sustenance. They're a reminder that I am alive.*"
+
 ![RedSunrise.jpg](/img/user/RedSunrise.jpg)
 Calus is right. Some tell me that constant reminders of impermanence causes them to feel despair. I find no such despair in it. I treat my time like a budget, I only have so much of it and I get to spend it on whatever I want. Not only does this mentality free me from worry, but it allows me to make progress. Time can only move forward, you will never know all the variables so don't let them control you. Be like Emperor Calus, smell the flowers. 🪻
