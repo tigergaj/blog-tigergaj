@@ -2,8 +2,7 @@
 {"dg-publish":true,"permalink":"/Creative projects/Blog/I've been looking at this person in the mirror/","tags":["blog","come_out"]}
 ---
 
-## I've been looking at this person in the mirror
-But I haven't taken any pictures of them. I've been constantly thinking about the subjectivity of gender and I'm gonna be honest, the more I detach myself from it, the happier I am. 
+I've been looking at this person in the mirror. but I haven't taken any pictures of them. I've been constantly thinking about the subjectivity of gender and I'm gonna be honest, the more I detach myself from it, the happier I am. 
 
 ![IMG_20250407_190325.jpg](/img/user/IMG_20250407_190325.jpg)
 ## It feels good to accept what I see 
