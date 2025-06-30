@@ -11,6 +11,7 @@ My name is Lewa, I'm a 25 year old queer artist with way too dang many thoughts 
 ### Come Out
 - [[Creative projects/Come Out/Come Out/Frameworks/Everything is Impermanent\|Everything is Impermanent]]
 - [[Creative projects/Blog/I've been looking at this person in the mirror\|I've been looking at this person in the mirror]]
+- [[Creative projects/Come Out/Come Out/you always do\|you always do]]
 ## My most recent post:
 
 <div class="transclusion internal-embed is-loaded"><a class="markdown-embed-link" href="/Creative projects/Come Out/Come Out/Frameworks/Everything is Impermanent/" aria-label="Open link"><svg xmlns="http://www.w3.org/2000/svg" width="24" height="24" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round" class="svg-icon lucide-link"><path d="M10 13a5 5 0 0 0 7.54.54l3-3a5 5 0 0 0-7.07-7.07l-1.72 1.71"></path><path d="M14 11a5 5 0 0 0-7.54-.54l-3 3a5 5 0 0 0 7.07 7.07l1.71-1.71"></path></svg></a><div class="markdown-embed">
@@ -19,7 +20,7 @@ My name is Lewa, I'm a 25 year old queer artist with way too dang many thoughts 
 
 
 ## Impermanence
-Shortly following the release of Destiny 2, the playerbase had leveled their characters and collected some new shiny loot. Then the first raid for destiny 2 launched. It was called "The Leviathan". A massive white and gold ship with a mouth designed to Pdevour small planets has entered the sol, approaching Nessus. An individual by the title Emperor Calus has created this vessel to grind planets down to dust to make galactic wine. He wears his hedonism on his sleeve. The entire ship is gold plated.
+Shortly following the release of Destiny 2, the playerbase had leveled their characters and collected some new shiny loot. Then the first raid for destiny 2 launched. It was called "The Leviathan". A massive white and gold ship with a mouth designed to devour small planets has entered the sol, approaching Nessus. An individual by the title Emperor Calus has created this vessel to grind planets down to dust to make galactic wine. He wears his hedonism on his sleeve. The entire ship is gold plated.
 
 ![LeviathanConcept_1.png](/img/user/Creative%20projects/Blog/LeviathanConcept_1.png)
 But if you read the lore books, you'll find that Calus had not simply stumbled upon being the emperor of a self sustaining loyalist faction surviving bountifully in deep space. The Sword from the raid had a lore tab titled "[It Stared Back](https://www.ishtar-collective.net/entries/it-stared-back#emperor-calus)". And it delivers a catalyst for why he started building his magnificent Empire.
