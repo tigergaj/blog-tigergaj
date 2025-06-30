@@ -2,6 +2,8 @@
 {"dg-publish":true,"permalink":"/Creative projects/Come Out/Come Out/you always do/","tags":["letter","person/mom","queer","come_out"]}
 ---
 
+*the following is a letter to my mother. I wrote this to express how I felt after she confronted me for not wearing a shirt in front of her outside, In the sun. she stared the conversation with an angry tone and the phrase: "So you like having breasts?" like, yeah, no fucking shit bro, why else would I deal with the friction of you acting like this?*
+
 when I quit the church, I knew you would be afraid, and that you would let me know, because you always do.
 
 I have experienced the friction of your hang ups for as long as I can remember. it has been a constant background hum in my life. Whether I like it or not you've make it clear that you're willing to waste another precious moment we both have left in this beautiful paradise attempting to convince me that I am unhappy being myself. but that's not how the self works. I've explained this to you before, but I have learned to be patient and I will explain it once again. You cannot choose how someone else thinks. that is the nature of reality. how we choose to interact with the world is something sacred. it says everything about a person. and the Modus Operandi that I have chosen is to try my best to be patient with you. I do hate your fucking guts. I think you are a coward. I think my state of being makes you afraid because you do not want to accept that a person such as me could live in a way so different to you and be happy. but that is the nature of reality. every day people like me wake up and be happy and experience friction from people like you. 
