@@ -2,9 +2,10 @@
 {"dg-publish":true,"permalink":"/Creative projects/Come Out/Come Out/you always do/","tags":["letter","person/mom","queer","come_out"]}
 ---
 
-*the following is a letter to my mother. I wrote this to express how I felt after she confronted me for not wearing a shirt in front of her outside, In the sun. she stared the conversation with an angry tone and the phrase: "So you like having breasts?" like, yeah, no fucking shit bro, why else would I deal with the friction of you acting like this?*
+*the following is a letter to my mother. I wrote this to express how I felt after she confronted me for not wearing a shirt in front of her outside, In the sun. she started the conversation with an angry tone and the phrase: "So you like having breasts?" like, yeah, no fucking shit bro, why else would I deal with the friction of you acting like this?*
 
 ---
+
 ![IMG_20250705_145001 1.jpg](/img/user/IMG_20250705_145001%201.jpg)
 
 ---
