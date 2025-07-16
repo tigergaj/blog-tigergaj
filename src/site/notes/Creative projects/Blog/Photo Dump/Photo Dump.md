@@ -17,4 +17,4 @@ I've always wanted to participate in instagram. and for a time, in small doses, 
 # Photo Dump
 ## 2025-07-16
 good morning!
-![IMG_20250716_090606.jpg](/img/user/IMG_20250716_090606.jpg)![IMG_20250716_090606 1.jpg](/img/user/IMG_20250716_090606%201.jpg)
+![IMG_20250716_090606.jpg](/img/user/IMG_20250716_090606.jpg)
