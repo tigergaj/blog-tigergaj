@@ -11,7 +11,7 @@ I've always wanted to participate in instagram. and for a time, in small doses, 
 ## Ground Rules
 - These images are not to be taken and used without my permission.
 - Do not be a dick.
-- Nudity will be mixed in intermittently and I will not attempt to censor it. Nudity is not sexual, bodies are not sexual. A culture uncomfortable with nudity is a culture uncomfortable with bodies, and we're made of those. Probably a good idea to not be afraid of them.
+- Nudity will be mixed in intermittently and I will not attempt to censor it. Nudity is not sexual, bodies are not sexual. A culture uncomfortable with nudity is a culture uncomfortable with bodies, and we're made of those, probably a good idea to not be afraid of them.
 - I am not above IP banning you if you are weird, you too can be free from fascism by posting your nudes, (or being naked, I'm currently writing this 100% nude sitting in the mid july morning sun)
 - fuck the rules, stop the hoopla, free palastine.
 # Photo Dump
@@ -19,3 +19,18 @@ I've always wanted to participate in instagram. and for a time, in small doses, 
 good morning!
 ![IMG_20250716_090606.jpg](/img/user/IMG_20250716_090606.jpg)
 ![IMG_20250716_090615.jpg](/img/user/IMG_20250716_090615.jpg)
+## 2025-07-17
+
+![IMG_20250716_123213.jpg](/img/user/IMG_20250716_123213.jpg)
+![IMG_20250716_123223.jpg](/img/user/IMG_20250716_123223.jpg)
+![IMG_20250716_123228.jpg](/img/user/IMG_20250716_123228.jpg)
+![IMG_20250716_123320.jpg](/img/user/IMG_20250716_123320.jpg)
+![IMG_20250716_143213.jpg](/img/user/IMG_20250716_143213.jpg)
+![IMG_20250717_092548.jpg](/img/user/IMG_20250717_092548.jpg)
+![IMG_20250717_092742.jpg](/img/user/IMG_20250717_092742.jpg)
+![IMG_20250717_092757.jpg](/img/user/IMG_20250717_092757.jpg)
+![IMG_20250717_093027.jpg](/img/user/IMG_20250717_093027.jpg)
+![IMG_20250717_111229.jpg](/img/user/IMG_20250717_111229.jpg)
+![IMG_20250717_111338.jpg](/img/user/IMG_20250717_111338.jpg)
+![IMG_20250717_112242.jpg](/img/user/IMG_20250717_112242.jpg)
+![IMG_20250717_113716.jpg](/img/user/IMG_20250717_113716.jpg)
