@@ -11,14 +11,15 @@ My name is Lewa, I'm a 25 year old queer artist(?) with way too dang many though
 
 
 
-### Pronouns
-- Fae/Faer/Faem They/Them/Theirs
+## About me!
+I'm a 25 year old queer artist in pursuit of understanding understanding itself, that is my mission. I am quite passionate about art, anarchism, learning, and enjoying living my life as much as possible.
 ### Gender
+Pronouns: Fae/Faer/Faem | They/Them/Theirs
 I would describe my found gender as something between a Fae and a Nonbinary Fem. I'm not nearly as concerned about the gender itself, but rather that people understand that it's not useful to carve one into stone. that is a useless idea. nothing will last for eternity, neither will my gender.
 
-The short answer is that gender is a social construct designed to control populations of people. The most powerful [[Creative projects/Come Out/Come Out/Power Structures\|Power Structures]] make sure to utilize it.
+The short answer is that gender is a social construct designed to control populations of people. The most powerful [[Creative projects/Shelved Projects/Come Out/Come Out/Power Structures\|Power Structures]] make sure to utilize it.
 
-The long answer can be found at [[Creative projects/Come Out/Come Out/I ask that you understand/I ask you to understand\|I ask you to understand]]
+The long answer can be found at [[Creative projects/Shelved Projects/Come Out/Come Out/I ask that you understand/I ask you to understand\|I ask you to understand]]
 
 
 
@@ -30,7 +31,7 @@ The long answer can be found at [[Creative projects/Come Out/Come Out/I ask that
 - [[Creative projects/Blog/NYWC/New York Weather Check\|New York Weather Check]]
 - [[Creative projects/Blog/Photo Dump/Photo Dump\|Photo Dump]]
 ### Come Out
-- [[Creative projects/Come Out/Come Out/Frameworks/Everything is Impermanent\|Everything is Impermanent]]
+- [[Creative projects/Shelved Projects/Come Out/Come Out/Frameworks/Everything is Impermanent\|Everything is Impermanent]]
 - [[Creative projects/Blog/I've been looking at this person in the mirror\|I've been looking at this person in the mirror]]
 - [[life/Letters/A series of Letters to my mom\|A series of Letters to my mom]]
 ## My most recent post:
@@ -49,13 +50,30 @@ I've always wanted to participate in instagram. and for a time, in small doses, 
 ## Ground Rules
 - These images are not to be taken and used without my permission.
 - Do not be a dick.
-- Nudity will be mixed in intermittently and I will not attempt to censor it. Nudity is not sexual, bodies are not sexual. A culture uncomfortable with nudity is a culture uncomfortable with bodies, and we're made of those. Probably a good idea to not be afraid of them.
+- Nudity will be mixed in intermittently and I will not attempt to censor it. Nudity is not sexual, bodies are not sexual. A culture uncomfortable with nudity is a culture uncomfortable with bodies, and we're made of those, probably a good idea to not be afraid of them.
 - I am not above IP banning you if you are weird, you too can be free from fascism by posting your nudes, (or being naked, I'm currently writing this 100% nude sitting in the mid july morning sun)
 - fuck the rules, stop the hoopla, free palastine.
 # Photo Dump
 ## 2025-07-16
 good morning!
-![IMG_20250716_090606.jpg](/img/user/IMG_20250716_090606.jpg)![IMG_20250716_090606 1.jpg](/img/user/IMG_20250716_090606%201.jpg)
+![IMG_20250716_090606.jpg](/img/user/IMG_20250716_090606.jpg)
+![IMG_20250716_090615.jpg](/img/user/IMG_20250716_090615.jpg)
+## 2025-07-17
+
+![IMG_20250716_123213.jpg](/img/user/IMG_20250716_123213.jpg)
+![IMG_20250716_123223.jpg](/img/user/IMG_20250716_123223.jpg)
+![IMG_20250716_123228.jpg](/img/user/IMG_20250716_123228.jpg)
+![IMG_20250716_123320.jpg](/img/user/IMG_20250716_123320.jpg)
+![IMG_20250716_143213.jpg](/img/user/IMG_20250716_143213.jpg)
+![IMG_20250717_092548.jpg](/img/user/IMG_20250717_092548.jpg)
+![IMG_20250717_092742.jpg](/img/user/IMG_20250717_092742.jpg)
+![IMG_20250717_092757.jpg](/img/user/IMG_20250717_092757.jpg)
+![IMG_20250717_093027.jpg](/img/user/IMG_20250717_093027.jpg)
+![IMG_20250717_111229.jpg](/img/user/IMG_20250717_111229.jpg)
+![IMG_20250717_111338.jpg](/img/user/IMG_20250717_111338.jpg)
+![IMG_20250717_112242.jpg](/img/user/IMG_20250717_112242.jpg)
+![IMG_20250717_113716.jpg](/img/user/IMG_20250717_113716.jpg)
+
 
 </div></div>
 
