@@ -29,7 +29,7 @@ The long answer can be found at [[Creative projects/Shelved Projects/Come Out/Co
 ### Random
 - [[Creative projects/Blog/The Apparatus/The Apparatus\|The Apparatus]]
 - [[Creative projects/Blog/NYWC/New York Weather Check\|New York Weather Check]]
-- [[Creative projects/Blog/Photo Dump/Photo Dump\|Creative projects/Blog/Photo Dump/Photo Dump]]
+- [[Creative projects/Blog/Photo Dump/Photo Dump\|Photo Dump]]
 ### Come Out
 - [[Creative projects/Shelved Projects/Come Out/Come Out/Frameworks/Everything is Impermanent\|Everything is Impermanent]]
 - [[Creative projects/Blog/I've been looking at this person in the mirror\|I've been looking at this person in the mirror]]
@@ -42,10 +42,10 @@ The long answer can be found at [[Creative projects/Shelved Projects/Come Out/Co
 
 
 # Directory
-[[#Why Here?]]
-[[#Ground Rules]]
-[[#Photo Dump]]
-[[#Most Recent post]]
+[[Creative projects/Blog/Photo Dump/Photo Dump#Why Here?\|Why Here?]]
+[[Creative projects/Blog/Photo Dump/Photo Dump#Ground Rules\|Ground Rules]]
+[[Creative projects/Blog/Photo Dump/Photo Dump#Photo Dump\|Photo Dump]]
+[[Creative projects/Blog/Photo Dump/Photo Dump#Most Recent post\|Most Recent Post]]
 ## Most Recent post:
 
 <div class="transclusion internal-embed is-loaded"><a class="markdown-embed-link" href="/Creative projects/Blog/Photo Dump/Photo Dump 2025-07-17/" aria-label="Open link"><svg xmlns="http://www.w3.org/2000/svg" width="24" height="24" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round" class="svg-icon lucide-link"><path d="M10 13a5 5 0 0 0 7.54.54l3-3a5 5 0 0 0-7.07-7.07l-1.72 1.71"></path><path d="M14 11a5 5 0 0 0-7.54-.54l-3 3a5 5 0 0 0 7.07 7.07l1.71-1.71"></path></svg></a><div class="markdown-embed">
