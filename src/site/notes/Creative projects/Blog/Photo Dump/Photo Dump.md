@@ -9,25 +9,24 @@
 [[Creative projects/Blog/Photo Dump/Photo Dump#Most Recent post\|Most Recent Post]]
 ## Most Recent post:
 
-<div class="transclusion internal-embed is-loaded"><a class="markdown-embed-link" href="/Creative projects/Blog/Photo Dump/Photo Dump 2025-07-17/" aria-label="Open link"><svg xmlns="http://www.w3.org/2000/svg" width="24" height="24" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round" class="svg-icon lucide-link"><path d="M10 13a5 5 0 0 0 7.54.54l3-3a5 5 0 0 0-7.07-7.07l-1.72 1.71"></path><path d="M14 11a5 5 0 0 0-7.54-.54l-3 3a5 5 0 0 0 7.07 7.07l1.71-1.71"></path></svg></a><div class="markdown-embed">
+<div class="transclusion internal-embed is-loaded"><a class="markdown-embed-link" href="/Creative projects/Blog/Photo Dump/Photo Dump 2025-07-18/" aria-label="Open link"><svg xmlns="http://www.w3.org/2000/svg" width="24" height="24" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round" class="svg-icon lucide-link"><path d="M10 13a5 5 0 0 0 7.54.54l3-3a5 5 0 0 0-7.07-7.07l-1.72 1.71"></path><path d="M14 11a5 5 0 0 0-7.54-.54l-3 3a5 5 0 0 0 7.07 7.07l1.71-1.71"></path></svg></a><div class="markdown-embed">
 
 
 
 
-## some pics from this morning and yesterday, in order!
-![IMG_20250716_123213.jpg](/img/user/IMG_20250716_123213.jpg)
-![IMG_20250716_123223.jpg](/img/user/IMG_20250716_123223.jpg)
-![IMG_20250716_123228.jpg](/img/user/IMG_20250716_123228.jpg)
-![IMG_20250716_123320.jpg](/img/user/IMG_20250716_123320.jpg)
-![IMG_20250716_143213.jpg](/img/user/IMG_20250716_143213.jpg)
-![IMG_20250717_092548.jpg](/img/user/IMG_20250717_092548.jpg)
-![IMG_20250717_092742.jpg](/img/user/IMG_20250717_092742.jpg)
-![IMG_20250717_092757.jpg](/img/user/IMG_20250717_092757.jpg)
-![IMG_20250717_093027.jpg](/img/user/IMG_20250717_093027.jpg)
-![IMG_20250717_111229.jpg](/img/user/IMG_20250717_111229.jpg)
-![IMG_20250717_111338.jpg](/img/user/IMG_20250717_111338.jpg)
-![IMG_20250717_112242.jpg](/img/user/IMG_20250717_112242.jpg)
-![IMG_20250717_113716.jpg](/img/user/IMG_20250717_113716.jpg)
+![IMG_20250718_105506.jpg](/img/user/IMG_20250718_105506.jpg)
+![IMG_20250718_105500.jpg](/img/user/IMG_20250718_105500.jpg)
+![IMG_20250718_105423.jpg](/img/user/IMG_20250718_105423.jpg)
+![IMG_20250718_105414.jpg](/img/user/IMG_20250718_105414.jpg)
+![IMG_20250718_105312.jpg](/img/user/IMG_20250718_105312.jpg)
+
+![IMG_20250718_171409.jpg](/img/user/IMG_20250718_171409.jpg)
+![IMG_20250718_171518.jpg](/img/user/IMG_20250718_171518.jpg)
+![IMG_20250718_171836.jpg](/img/user/IMG_20250718_171836.jpg)
+![IMG_20250718_171905.jpg](/img/user/IMG_20250718_171905.jpg)
+![IMG_20250718_171915.jpg](/img/user/IMG_20250718_171915.jpg)
+![f14b3d8b-5d8a-461e-98f8-b907e5f7a9d5.png](/img/user/f14b3d8b-5d8a-461e-98f8-b907e5f7a9d5.png)
+![02384962-1108-4cbf-ad9e-58bb5fe3c782.png](/img/user/02384962-1108-4cbf-ad9e-58bb5fe3c782.png)
 
 
 </div></div>
@@ -45,3 +44,4 @@ I've always wanted to participate in instagram. and for a time, in small doses, 
 # Photo Dump
 [[Creative projects/Blog/Photo Dump/Photo Dump 2025-07-16\|Photo Dump 2025-07-16]]
 [[Creative projects/Blog/Photo Dump/Photo Dump 2025-07-17\|Photo Dump 2025-07-17]]
+[[Creative projects/Blog/Photo Dump/Photo Dump 2025-07-18\|Photo Dump 2025-07-18]]
