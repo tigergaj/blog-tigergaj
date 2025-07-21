@@ -22,7 +22,7 @@
 
 
 ## Why Here?
-I've always wanted to participate in instagram. and for a time, in small doses, I did. But as I've becme more conscious of the greater picture and the niche that instagram holds, I've been wary of uploading any data to their platform. I deleted the app from my phone and when I reinstalled it to make a mutual aid post for a friend I found myself barraged with notifications for a person I talked to in the DMs for about a month. It is now blatantly obvious to me that platforms like instagram, facebook, and youtube are just propaganda. To make you depressed, anxious, hopeless. Whatever stops you from doing something about it. I would love to live in a world where computers actually helped us come together, but that is not the world we live in.  So when bluesky announced that they are going to concede to the new EU regulations requiring every user that wishes to upload any sort of nudity whatsovere to submit their governemt documents I knew that I needed to make this.
+I've always wanted to participate in instagram. and for a time, in small doses, I did. But as I've become more conscious of the greater picture and the niche that instagram holds, I've been wary of uploading any data to their platform. I deleted the app from my phone and when I reinstalled it to make a mutual aid post for a friend I found myself barraged with notifications for an ex. It is now blatantly obvious to me that platforms like instagram, facebook, and youtube are just propaganda. To make you depressed, anxious, hopeless. Whatever stops you from doing something about it. I would love to live in a world where computers actually helped us come together, but that is not the world we live in.  So when bluesky announced that they are going to concede to the new EU regulations requiring every user that wishes to upload any sort of nudity whatsovere to submit their governemt documents I knew that I needed to move all my pictures somewhere else. That place is now here :)
 ## Ground Rules
 - These images are not to be taken and used without my permission.
 - Do not be a dick.
@@ -35,4 +35,4 @@ I've always wanted to participate in instagram. and for a time, in small doses, 
 [[Creative projects/Blog/Photo Dump/Photo Dump 2025-07-17\|Photo Dump 2025-07-17]]
 [[Creative projects/Blog/Photo Dump/Photo Dump 2025-07-18\|Photo Dump 2025-07-18]]
 [[Creative projects/Blog/Photo Dump/Photo Dump 2025-07-19\|Photo Dump 2025-07-19]]
-
+[[Creative projects/Blog/Photo Dump/Photo Dump 2025-07-21\|Photo Dump 2025-07-21]]
