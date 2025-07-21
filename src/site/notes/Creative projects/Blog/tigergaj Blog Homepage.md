@@ -14,7 +14,7 @@
 🦋[Bsky](https://bsky.app/profile/tigergaj.bsky.social)
 🦾[Steam](https://steamcommunity.com/id/tigergaj/)
 📺[Youtube](https://www.youtube.com/channel/UC9a-QAIyeL_D0g_zOV_f5Xg)
-🪧[Twitch](twitch.tv/tigergaj)
+🪧[Twitch](http://twitch.tv/tigergaj)
 ## About me!
 I'm a 25 year old queer artist in pursuit of understanding understanding itself, that is my mission. I am quite passionate about art, anarchism, learning, and enjoying living my life as much as possible. I'm gonna try to start moving into this blog more. I really cannot fucking stand the social media shit anymore.
 
@@ -45,24 +45,23 @@ I would describe my found gender as something between a Fae and a Nonbinary Fem.
 - [[life/Letters/A series of Letters to my mom\|A series of Letters to my mom]]
 ## My most recent post:
 
-<div class="transclusion internal-embed is-loaded"><a class="markdown-embed-link" href="/Creative projects/Blog/Photo Dump/Photo Dump 2025-07-18/" aria-label="Open link"><svg xmlns="http://www.w3.org/2000/svg" width="24" height="24" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round" class="svg-icon lucide-link"><path d="M10 13a5 5 0 0 0 7.54.54l3-3a5 5 0 0 0-7.07-7.07l-1.72 1.71"></path><path d="M14 11a5 5 0 0 0-7.54-.54l-3 3a5 5 0 0 0 7.07 7.07l1.71-1.71"></path></svg></a><div class="markdown-embed">
+<div class="transclusion internal-embed is-loaded"><a class="markdown-embed-link" href="/Creative projects/Blog/Photo Dump/Photo Dump 2025-07-21/" aria-label="Open link"><svg xmlns="http://www.w3.org/2000/svg" width="24" height="24" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round" class="svg-icon lucide-link"><path d="M10 13a5 5 0 0 0 7.54.54l3-3a5 5 0 0 0-7.07-7.07l-1.72 1.71"></path><path d="M14 11a5 5 0 0 0-7.54-.54l-3 3a5 5 0 0 0 7.07 7.07l1.71-1.71"></path></svg></a><div class="markdown-embed">
 
 
 
 
-![IMG_20250718_105506.jpg](/img/user/IMG_20250718_105506.jpg)
-![IMG_20250718_105500.jpg](/img/user/IMG_20250718_105500.jpg)
-![IMG_20250718_105423.jpg](/img/user/IMG_20250718_105423.jpg)
-![IMG_20250718_105414.jpg](/img/user/IMG_20250718_105414.jpg)
-![IMG_20250718_105312.jpg](/img/user/IMG_20250718_105312.jpg)
-
-![IMG_20250718_171409.jpg](/img/user/IMG_20250718_171409.jpg)
-![IMG_20250718_171518.jpg](/img/user/IMG_20250718_171518.jpg)
-![IMG_20250718_171836.jpg](/img/user/IMG_20250718_171836.jpg)
-![IMG_20250718_171905.jpg](/img/user/IMG_20250718_171905.jpg)
-![IMG_20250718_171915.jpg](/img/user/IMG_20250718_171915.jpg)
-![f14b3d8b-5d8a-461e-98f8-b907e5f7a9d5.png](/img/user/f14b3d8b-5d8a-461e-98f8-b907e5f7a9d5.png)
-![02384962-1108-4cbf-ad9e-58bb5fe3c782.png](/img/user/02384962-1108-4cbf-ad9e-58bb5fe3c782.png)
+## Went on a walk
+got some pictures of the early morning in the valley, covered in dew. 
+![IMG_20250721_061312.jpg](/img/user/IMG_20250721_061312.jpg)
+![IMG_20250721_061530.jpg](/img/user/IMG_20250721_061530.jpg)
+![IMG_20250721_061557.jpg](/img/user/IMG_20250721_061557.jpg)
+![IMG_20250721_061741.jpg](/img/user/IMG_20250721_061741.jpg)
+![IMG_20250721_061744.jpg](/img/user/IMG_20250721_061744.jpg)
+![IMG_20250721_061830.jpg](/img/user/IMG_20250721_061830.jpg)
+![IMG_20250721_061939.jpg](/img/user/IMG_20250721_061939.jpg)
+![IMG_20250721_062102.jpg](/img/user/IMG_20250721_062102.jpg)
+![IMG_20250721_062107.jpg](/img/user/IMG_20250721_062107.jpg)
+![IMG_20250721_063314.jpg](/img/user/IMG_20250721_063314.jpg)
 
 
 </div></div>

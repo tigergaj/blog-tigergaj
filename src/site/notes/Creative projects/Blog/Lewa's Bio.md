@@ -7,7 +7,7 @@
 🦋[Bsky](https://bsky.app/profile/tigergaj.bsky.social)
 🦾[Steam](https://steamcommunity.com/id/tigergaj/)
 📺[Youtube](https://www.youtube.com/channel/UC9a-QAIyeL_D0g_zOV_f5Xg)
-🪧[Twitch](twitch.tv/tigergaj)
+🪧[Twitch](http://twitch.tv/tigergaj)
 ## About me!
 I'm a 25 year old queer artist in pursuit of understanding understanding itself, that is my mission. I am quite passionate about art, anarchism, learning, and enjoying living my life as much as possible. I'm gonna try to start moving into this blog more. I really cannot fucking stand the social media shit anymore.
 
