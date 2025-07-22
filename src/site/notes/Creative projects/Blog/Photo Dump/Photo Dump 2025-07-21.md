@@ -24,3 +24,6 @@ got some pictures of the early morning in the valley, covered in dew.
 ![markup_1000037504.jpg](/img/user/markup_1000037504.jpg)
 ![IMG_20250721_131821.jpg](/img/user/IMG_20250721_131821.jpg)
 ![[BIBnphDErYlut4oi.mov]]
+## GARDEN HAUL LET'S FUCkING GOOOOO
+
+![IMG_20250721_203607.jpg](/img/user/IMG_20250721_203607.jpg)
