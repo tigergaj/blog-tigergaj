@@ -24,6 +24,17 @@ got some pictures of the early morning in the valley, covered in dew.
 ![markup_1000037504.jpg](/img/user/markup_1000037504.jpg)
 ![IMG_20250721_131821.jpg](/img/user/IMG_20250721_131821.jpg)
 ![[BIBnphDErYlut4oi.mov]]
-## GARDEN HAUL LET'S FUCkING GOOOOO
+## GARDEN HAUL LET'S FUCKING GOOOOO
 
 ![IMG_20250721_203607.jpg](/img/user/IMG_20250721_203607.jpg)
+# Bean Soup
+![IMG_20250721_210040.jpg](/img/user/IMG_20250721_210040.jpg)
+![IMG_20250721_221056.jpg](/img/user/IMG_20250721_221056.jpg)
+![IMG_20250721_215049.jpg](/img/user/IMG_20250721_215049.jpg)
+
+---
+
+![eba97335-e875-4f63-ae4d-b25420db111d.png](/img/user/eba97335-e875-4f63-ae4d-b25420db111d.png)
+
+#### Somma y'all be like...
+![IMG_20250721_113116 1.jpg](/img/user/IMG_20250721_113116%201.jpg)
