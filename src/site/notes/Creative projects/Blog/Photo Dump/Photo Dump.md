@@ -9,7 +9,7 @@
 [[Creative projects/Blog/Photo Dump/Photo Dump#Most Recent post\|Most Recent Post]]
 ## Most Recent post:
 
-<div class="transclusion internal-embed is-loaded"><div class="markdown-embed">
+<div class="transclusion internal-embed is-loaded"><a class="markdown-embed-link" href="/Creative projects/Blog/Photo Dump/Photo Dump 2025-07-22/" aria-label="Open link"><svg xmlns="http://www.w3.org/2000/svg" width="24" height="24" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round" class="svg-icon lucide-link"><path d="M10 13a5 5 0 0 0 7.54.54l3-3a5 5 0 0 0-7.07-7.07l-1.72 1.71"></path><path d="M14 11a5 5 0 0 0-7.54-.54l-3 3a5 5 0 0 0 7.07 7.07l1.71-1.71"></path></svg></a><div class="markdown-embed">
 
 
 
@@ -31,9 +31,11 @@ I've always wanted to participate in instagram. and for a time, in small doses, 
 - I am not above IP banning you if you are weird, you too can be free from fascism by posting your nudes, (or being naked, I'm currently writing this 100% nude sitting in the mid july morning sun)
 - fuck the rules, stop the hoopla, free palastine.
 
-# Photo Dump
+# Archive
 [[Creative projects/Blog/Photo Dump/Photo Dump 2025-07-16\|Photo Dump 2025-07-16]]
 [[Creative projects/Blog/Photo Dump/Photo Dump 2025-07-17\|Photo Dump 2025-07-17]]
 [[Creative projects/Blog/Photo Dump/Photo Dump 2025-07-18\|Photo Dump 2025-07-18]]
 [[Creative projects/Blog/Photo Dump/Photo Dump 2025-07-19\|Photo Dump 2025-07-19]]
 [[Creative projects/Blog/Photo Dump/Photo Dump 2025-07-21\|Photo Dump 2025-07-21]]
+[[Creative projects/Blog/Photo Dump/Photo Dump 2025-07-22\|Photo Dump 2025-07-22]]
+
