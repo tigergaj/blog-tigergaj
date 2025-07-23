@@ -56,48 +56,15 @@ It's fair to say that at this moment I'm still absorbing. I may never stop absor
 - [[life/Letters/A series of Letters to my mom\|A series of Letters to my mom]]
 ## My most recent post:
 
-<div class="transclusion internal-embed is-loaded"><a class="markdown-embed-link" href="/Creative projects/Blog/Photo Dump/Photo Dump 2025-07-21/" aria-label="Open link"><svg xmlns="http://www.w3.org/2000/svg" width="24" height="24" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round" class="svg-icon lucide-link"><path d="M10 13a5 5 0 0 0 7.54.54l3-3a5 5 0 0 0-7.07-7.07l-1.72 1.71"></path><path d="M14 11a5 5 0 0 0-7.54-.54l-3 3a5 5 0 0 0 7.07 7.07l1.71-1.71"></path></svg></a><div class="markdown-embed">
+<div class="transclusion internal-embed is-loaded"><div class="markdown-embed">
 
 
 
 
-## Went on a walk
-got some pictures of the early morning in the valley, covered in dew. 
-![IMG_20250721_061312.jpg](/img/user/IMG_20250721_061312.jpg)
-![IMG_20250721_061530.jpg](/img/user/IMG_20250721_061530.jpg)
-![IMG_20250721_061557.jpg](/img/user/IMG_20250721_061557.jpg)
-![IMG_20250721_061741.jpg](/img/user/IMG_20250721_061741.jpg)
-![IMG_20250721_061744.jpg](/img/user/IMG_20250721_061744.jpg)
-![IMG_20250721_061830.jpg](/img/user/IMG_20250721_061830.jpg)
-![IMG_20250721_061939.jpg](/img/user/IMG_20250721_061939.jpg)
-![IMG_20250721_062102.jpg](/img/user/IMG_20250721_062102.jpg)
-![IMG_20250721_062107.jpg](/img/user/IMG_20250721_062107.jpg)
-![IMG_20250721_063314.jpg](/img/user/IMG_20250721_063314.jpg)
-
-![IMG_20250721_131754.jpg](/img/user/IMG_20250721_131754.jpg)
-![IMG_20250721_131746.jpg](/img/user/IMG_20250721_131746.jpg)
-![IMG_20250721_131730.jpg](/img/user/IMG_20250721_131730.jpg)
-![IMG_20250721_113116.jpg](/img/user/IMG_20250721_113116.jpg)
-![IMG_20250721_075600.jpg](/img/user/IMG_20250721_075600.jpg)
-![IMG_20250721_071128.jpg](/img/user/IMG_20250721_071128.jpg)
-![markup_1000037504.jpg](/img/user/markup_1000037504.jpg)
-![IMG_20250721_131821.jpg](/img/user/IMG_20250721_131821.jpg)
-![[BIBnphDErYlut4oi.mov]]
-## GARDEN HAUL LET'S FUCKING GOOOOO
-
-![IMG_20250721_203607.jpg](/img/user/IMG_20250721_203607.jpg)
-# Bean Soup
-![IMG_20250721_210040.jpg](/img/user/IMG_20250721_210040.jpg)
-![IMG_20250721_221056.jpg](/img/user/IMG_20250721_221056.jpg)
-![IMG_20250721_215049.jpg](/img/user/IMG_20250721_215049.jpg)
-
----
-
-![eba97335-e875-4f63-ae4d-b25420db111d.png](/img/user/eba97335-e875-4f63-ae4d-b25420db111d.png)
-
-#### Somma y'all be like...
-![IMG_20250721_113116 1.jpg](/img/user/IMG_20250721_113116%201.jpg)
-
+![IMG_20250722_145609.jpg](/img/user/IMG_20250722_145609.jpg)
+![IMG_20250722_145500.jpg](/img/user/IMG_20250722_145500.jpg)
+![cf3c9e4f-198b-41cc-af06-cf733c9f3fd6.png](/img/user/cf3c9e4f-198b-41cc-af06-cf733c9f3fd6.png)
+![IMG_20250722_092316.jpg](/img/user/IMG_20250722_092316.jpg)
 
 </div></div>
 
