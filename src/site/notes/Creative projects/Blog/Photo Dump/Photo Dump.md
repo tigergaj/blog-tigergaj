@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/Creative projects/Blog/Photo Dump/Photo Dump/","tags":["image","blog"]}
 ---
 
-# Directory
+P# Directory
 [[Creative projects/Blog/Photo Dump/Photo Dump#Why Here?\|Why Here?]]
 [[Creative projects/Blog/Photo Dump/Photo Dump#Ground Rules\|Ground Rules]]
 [[Creative projects/Blog/Photo Dump/Photo Dump#Photo Dump\|Photo Dump]]
@@ -73,7 +73,6 @@ I've always wanted to participate in instagram. and for a time, in small doses, 
 - Nudity will be mixed in intermittently and I will not attempt to censor it. Nudity is not sexual, bodies are not sexual. A culture uncomfortable with nudity is a culture uncomfortable with bodies, and we're made of those, probably a good idea to not be afraid of them.
 - I am not above IP banning you if you are weird, you too can be free from fascism by posting your nudes, (or being naked, I'm currently writing this 100% nude sitting in the mid july morning sun)
 - fuck the rules, stop the hoopla, free palastine.
-
 # Archive
 [[Creative projects/Blog/Photo Dump/Photo Dump 2025-07-16\|Photo Dump 2025-07-16]]
 [[Creative projects/Blog/Photo Dump/Photo Dump 2025-07-17\|Photo Dump 2025-07-17]]
@@ -81,4 +80,6 @@ I've always wanted to participate in instagram. and for a time, in small doses, 
 [[Creative projects/Blog/Photo Dump/Photo Dump 2025-07-19\|Photo Dump 2025-07-19]]
 [[Creative projects/Blog/Photo Dump/Photo Dump 2025-07-21\|Photo Dump 2025-07-21]]
 [[Creative projects/Blog/Photo Dump/Photo Dump 2025-07-24\|Photo Dump 2025-07-24]]
+[[Creative projects/Blog/Photo Dump/Photo Dump 2025-07-27\|Photo Dump 2025-07-27]]
+
 

@@ -20,7 +20,6 @@ got some pictures of the early morning in the valley, covered in dew.
 ![IMG_20250721_131730.jpg](/img/user/IMG_20250721_131730.jpg)
 ![IMG_20250721_113116.jpg](/img/user/IMG_20250721_113116.jpg)
 ![IMG_20250721_075600.jpg](/img/user/IMG_20250721_075600.jpg)
-![IMG_20250721_071128.jpg](/img/user/IMG_20250721_071128.jpg)
 ![markup_1000037504.jpg](/img/user/markup_1000037504.jpg)
 ![IMG_20250721_131821.jpg](/img/user/IMG_20250721_131821.jpg)
 ![[BIBnphDErYlut4oi.mov]]
