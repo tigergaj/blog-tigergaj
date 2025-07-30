@@ -9,58 +9,41 @@ P# Directory
 [[Creative projects/Blog/Photo Dump/Photo Dump#Most Recent post\|Most Recent Post]]
 ## Most Recent post:
 
-<div class="transclusion internal-embed is-loaded"><a class="markdown-embed-link" href="/Creative projects/Blog/Photo Dump/Photo Dump 2025-07-27/" aria-label="Open link"><svg xmlns="http://www.w3.org/2000/svg" width="24" height="24" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round" class="svg-icon lucide-link"><path d="M10 13a5 5 0 0 0 7.54.54l3-3a5 5 0 0 0-7.07-7.07l-1.72 1.71"></path><path d="M14 11a5 5 0 0 0-7.54-.54l-3 3a5 5 0 0 0 7.07 7.07l1.71-1.71"></path></svg></a><div class="markdown-embed">
+<div class="transclusion internal-embed is-loaded"><a class="markdown-embed-link" href="/Photo Dump 2025-07-30/" aria-label="Open link"><svg xmlns="http://www.w3.org/2000/svg" width="24" height="24" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round" class="svg-icon lucide-link"><path d="M10 13a5 5 0 0 0 7.54.54l3-3a5 5 0 0 0-7.07-7.07l-1.72 1.71"></path><path d="M14 11a5 5 0 0 0-7.54-.54l-3 3a5 5 0 0 0 7.07 7.07l1.71-1.71"></path></svg></a><div class="markdown-embed">
 
 
 
 
-## Woke up and bro was tryna eat my creammawheat!!!
-![20250724_083504.jpg](/img/user/20250724_083504.jpg)
-![20250724_083507.jpg](/img/user/20250724_083507.jpg)
-![20250724_083515.jpg](/img/user/20250724_083515.jpg)
-![20250727_151651.jpg](/img/user/20250727_151651.jpg)
-![20250727_151653.jpg](/img/user/20250727_151653.jpg)
-![20250727_151708.jpg](/img/user/20250727_151708.jpg)
-![IMG_20250724_123933 1.jpg](/img/user/IMG_20250724_123933%201.jpg)
-![IMG_20250725_105203.jpg](/img/user/IMG_20250725_105203.jpg)
-![IMG_20250725_112145.jpg](/img/user/IMG_20250725_112145.jpg)
-![IMG_20250725_112152.jpg](/img/user/IMG_20250725_112152.jpg)
-![IMG_20250725_112202.jpg](/img/user/IMG_20250725_112202.jpg)
-![IMG_20250725_112224.jpg](/img/user/IMG_20250725_112224.jpg)
-![IMG_20250725_112230.jpg](/img/user/IMG_20250725_112230.jpg)
-![IMG_20250726_053223.jpg](/img/user/IMG_20250726_053223.jpg)
-![IMG_20250726_054049.jpg](/img/user/IMG_20250726_054049.jpg)
-![IMG_20250726_054101.jpg](/img/user/IMG_20250726_054101.jpg)
-![IMG_20250726_173000.jpg](/img/user/IMG_20250726_173000.jpg)
-![IMG_20250726_173002.jpg](/img/user/IMG_20250726_173002.jpg)
-![IMG_20250726_173015.jpg](/img/user/IMG_20250726_173015.jpg)
-![IMG_20250726_173034.jpg](/img/user/IMG_20250726_173034.jpg)
-![IMG_20250726_173044.jpg](/img/user/IMG_20250726_173044.jpg)
-![IMG_20250726_190845.jpg](/img/user/IMG_20250726_190845.jpg)
-![IMG_20250726_191234.jpg](/img/user/IMG_20250726_191234.jpg)
-![IMG_20250726_192238.jpg](/img/user/IMG_20250726_192238.jpg)
-![IMG_20250726_192328.jpg](/img/user/IMG_20250726_192328.jpg)
-![IMG_20250726_192607.jpg](/img/user/IMG_20250726_192607.jpg)
-![IMG_20250726_192817.jpg](/img/user/IMG_20250726_192817.jpg)![RDT_20250724_1718082937536629035292734.jpg](/img/user/RDT_20250724_1718082937536629035292734.jpg)
-![angel.jpg](/img/user/angel.jpg)![[downloadfile.mp4]]
-![20250724_011025.jpg](/img/user/20250724_011025.jpg)
-![905e9344-a951-4071-bbf7-0a4b8c8ac922.png](/img/user/905e9344-a951-4071-bbf7-0a4b8c8ac922.png)
-![7608b551-7dc0-4e3c-b0be-2f5dbe69c8fe.png](/img/user/7608b551-7dc0-4e3c-b0be-2f5dbe69c8fe.png)
-![90e20e5d-5ae9-40da-8cc9-df564f851a70.png](/img/user/90e20e5d-5ae9-40da-8cc9-df564f851a70.png)
-![405c9d35-5087-4353-b975-e10e83344339 1.png](/img/user/405c9d35-5087-4353-b975-e10e83344339%201.png)
-![70e264da-59d3-4eda-955b-427c36552b62.png](/img/user/70e264da-59d3-4eda-955b-427c36552b62.png)
-## Took my friends here and I decided I needed a pic
-![IMG_6528.jpg](/img/user/IMG_6528.jpg)
-![IMG_6530.jpg](/img/user/IMG_6530.jpg)
-I actually found this I'm gay transformer already and tonight was my chance to go back to it. The first picture I posted of this this is actually on my hinge profile lmao
+If ur into piss and not listening to Urinal St. Station by the Yellow River Boys are you even into piss
+![IMG_20250728_215638.jpg](/img/user/IMG_20250728_215638.jpg)
+![IMG_20250729_120255_0.jpg](/img/user/IMG_20250729_120255_0.jpg)
+![IMG_20250729_113008.jpg](/img/user/IMG_20250729_113008.jpg)
 
----
 
-n e ways, goodbye! thank you for looking at all my cool pictures. I need to  get better at formatting these. I could make them look nicer with minimal work surely...
+![IMG_20250729_112956.jpg](/img/user/IMG_20250729_112956.jpg)
+![IMG_20250729_103121.jpg](/img/user/IMG_20250729_103121.jpg)
+![IMG_20250729_144950.jpg](/img/user/IMG_20250729_144950.jpg)
+![ef2437ce-29ff-4137-aca8-7b9ceb94e7e6.png](/img/user/ef2437ce-29ff-4137-aca8-7b9ceb94e7e6.png)
+![peter-what-is-this-v0-wygw313q5jyd1.png](/img/user/peter-what-is-this-v0-wygw313q5jyd1.png)
+![IMG_20250728_193944.jpg](/img/user/IMG_20250728_193944.jpg)
+![IMG_20250728_191609.jpg](/img/user/IMG_20250728_191609.jpg)
+![IMG_20250728_190555.jpg](/img/user/IMG_20250728_190555.jpg)
+![IMG_20250728_110850.jpg](/img/user/IMG_20250728_110850.jpg)
+![IMG_20250728_100834.jpg](/img/user/IMG_20250728_100834.jpg)
+![IMG_20250728_094627.jpg](/img/user/IMG_20250728_094627.jpg)
+![jqs86ngopfff1.webp](/img/user/jqs86ngopfff1.webp)
+![IMG_20250728_201517.jpg](/img/user/IMG_20250728_201517.jpg)
+![markup_1000037949.jpg](/img/user/markup_1000037949.jpg)
+![IMG_20250730_115554.jpg](/img/user/IMG_20250730_115554.jpg)
+![IMG_20250730_111200.jpg](/img/user/IMG_20250730_111200.jpg)
+![IMG_20250730_104637.jpg](/img/user/IMG_20250730_104637.jpg)
+![IMG_20250730_103800.jpg](/img/user/IMG_20250730_103800.jpg)
+![IMG_20250730_103756.jpg](/img/user/IMG_20250730_103756.jpg)
+![Screenshot_20250724_191138_Instagram.jpg](/img/user/Screenshot_20250724_191138_Instagram.jpg)
+![FB_IMG_1753823122303.jpg](/img/user/FB_IMG_1753823122303.jpg)
+![IMG_20250729_144739.jpg](/img/user/IMG_20250729_144739.jpg)
+![IMG_20250729_144950 1.jpg](/img/user/IMG_20250729_144950%201.jpg)
 
-goodbye! 
-
-~ Lewa 💚
 
 </div></div>
 
