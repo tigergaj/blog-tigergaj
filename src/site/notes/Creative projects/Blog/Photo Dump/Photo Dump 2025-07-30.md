@@ -29,5 +29,3 @@ If ur into piss and not listening to Urinal St. Station by the Yellow River Boys
 ![IMG_20250730_103756.jpg](/img/user/IMG_20250730_103756.jpg)
 ![Screenshot_20250724_191138_Instagram.jpg](/img/user/Screenshot_20250724_191138_Instagram.jpg)
 ![FB_IMG_1753823122303.jpg](/img/user/FB_IMG_1753823122303.jpg)
-![IMG_20250729_144739.jpg](/img/user/IMG_20250729_144739.jpg)
-![IMG_20250729_144950 1.jpg](/img/user/IMG_20250729_144950%201.jpg)
