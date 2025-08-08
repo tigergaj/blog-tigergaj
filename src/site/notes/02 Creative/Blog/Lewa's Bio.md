@@ -29,7 +29,7 @@ I am a prophet of [[02 Creative/Shelved Projects/Come Out/Come Out/Virtues/Wholi
 ---
 
 ### Art that I make 📝🥟
-I like to write as my primary medium of expression. I've been experimenting with [[02 Creative/Lewa's Poetry\|poetry]] as of late. but I am mostly interested in writing because being good at it gives me the power to put my experiences to words and I love words. I'm still dealing with the question of what to publish, so sorry if I'm a little reserved with my writing at the moment, it's sort of my thought baby if you think about it.
+I like to write as my primary medium of expression. I've been experimenting with [[02 Creative/Lewa's Poetry Scrapbook\|poetry]] as of late. but I am mostly interested in writing because being good at it gives me the power to put my experiences to words and I love words. I'm still dealing with the question of what to publish, so sorry if I'm a little reserved with my writing at the moment, it's sort of my thought baby if you think about it.
 
 I also love cooking, and I plan on getting better at doing recipes, but feel free to ask me about anything and everything food cuz I love to talk about it! fav meal is homemade pierogi with a fat dollop of sour cream and fresh dill to garnish.
 
