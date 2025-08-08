@@ -27,7 +27,7 @@ I've always wanted to participate in instagram. and for a time, in small doses, 
 ![IMG_20250802_195314.jpg](/img/user/IMG_20250802_195314.jpg)
 ### fern spores!!
 ![IMG_20250802_200223.jpg](/img/user/IMG_20250802_200223.jpg)
-### this area smells like fermented berries <3
+### this area smells like fermented berries 💚
 ![IMG_20250802_200242.jpg](/img/user/IMG_20250802_200242.jpg)
 ![IMG_20250802_200459.jpg](/img/user/IMG_20250802_200459.jpg)
 ![IMG_20250802_200640.jpg](/img/user/IMG_20250802_200640.jpg)
@@ -84,7 +84,7 @@ is this butch gender euphoria?? Lewa does not have the answer!
 ![mrousavy-2948774235012932158.jpg](/img/user/mrousavy-2948774235012932158.jpg)
 ![IMG_20250803_171818.jpg](/img/user/IMG_20250803_171818.jpg)
 ![IMG_20250803_172508.jpg](/img/user/IMG_20250803_172508.jpg)
-### Baby deer running away <3
+### Baby deer running away!
 ![IMG_20250803_173244.jpg](/img/user/IMG_20250803_173244.jpg)
 ![IMG_20250803_173247.jpg](/img/user/IMG_20250803_173247.jpg)
 ### This Oak Tree is freaking big
@@ -122,3 +122,4 @@ Lewa ~ ♡
 [[02 Creative/Blog/Photo Dump/Photo Dump 2025-07-24\|Photo Dump 2025-07-24]]
 [[02 Creative/Blog/Photo Dump/Photo Dump 2025-07-27\|Photo Dump 2025-07-27]]
 [[02 Creative/Blog/Photo Dump/Photo Dump 2025-07-30\|Photo Dump 2025-07-30]]
+[[02 Creative/Blog/Photo Dump/Photo Dump 2025-08-03\|Photo Dump 2025-08-03]]

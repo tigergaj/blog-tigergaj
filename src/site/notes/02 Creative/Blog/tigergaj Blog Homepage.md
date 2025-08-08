@@ -56,35 +56,27 @@ It's fair to say that at this moment I'm still absorbing. I may never stop absor
 - [[02 Creative/Letters/A series of Letters to The Monster\|02 Creative/Letters/A series of Letters to The Monster]]
 ### My most recent post:
 
-<div class="transclusion internal-embed is-loaded"><a class="markdown-embed-link" href="/02 Creative/Poetry/For one brief and magical moment/" aria-label="Open link"><svg xmlns="http://www.w3.org/2000/svg" width="24" height="24" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round" class="svg-icon lucide-link"><path d="M10 13a5 5 0 0 0 7.54.54l3-3a5 5 0 0 0-7.07-7.07l-1.72 1.71"></path><path d="M14 11a5 5 0 0 0-7.54-.54l-3 3a5 5 0 0 0 7.07 7.07l1.71-1.71"></path></svg></a><div class="markdown-embed">
+<div class="transclusion internal-embed is-loaded"><a class="markdown-embed-link" href="/02 Creative/Poetry/for one brief and magical moment/" aria-label="Open link"><svg xmlns="http://www.w3.org/2000/svg" width="24" height="24" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round" class="svg-icon lucide-link"><path d="M10 13a5 5 0 0 0 7.54.54l3-3a5 5 0 0 0-7.07-7.07l-1.72 1.71"></path><path d="M14 11a5 5 0 0 0-7.54-.54l-3 3a5 5 0 0 0 7.07 7.07l1.71-1.71"></path></svg></a><div class="markdown-embed">
 
 
 
 
-I often feel bad
+I often feel bad, very often, in fact.
+In fact, much of the time I spend breathing is spent feeling bad.
 
-very often, in fact
-
-I'm fact, much of the time I spend breathing is spent feeling bad
-
-I want to feel better, I want to blossom and grow like I've been told I will
-
+I want to feel better, I want to blossom and grow like I've been told I will.
 But I'm stuck.
-
 I'm stuck thinking about one brief magical moment.
 
-that was the peak, I'd not felt better than that in my entire life, and I may never feel it again. and that makes me sad again.
+that was the peak, I'd not felt better than that in my entire life, 
+and I am scared that I'll never feel it again, and then I am sad
 
-For one brief magical moment
-
+for one brief magical moment
 I was safe, I was warm
-
 in the warmth of the sun
 in the gaze of the moon
-
 I was loved
-
-For one brief magical moment
+for one brief magical moment
 
 ~ Lewa 💚
 
