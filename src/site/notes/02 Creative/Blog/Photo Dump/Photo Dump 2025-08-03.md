@@ -82,7 +82,7 @@ these things seriously taste so good!!
 ![IMG_20250803_183601.jpg](/img/user/IMG_20250803_183601.jpg)
 ![IMG_20250803_183556.jpg](/img/user/IMG_20250803_183556.jpg)
 ![IMG_20250803_184513.jpg](/img/user/IMG_20250803_184513.jpg)
-I love the far side very much, my dad died when I was 2 years old, but I still catch glimpses of him. He left a few comic books around and the far side was one of them. The Far Side is so stupid and it holds a special place in my heart <3
+I love the far side very much, my dad died when I was 2 years old, but I still catch glimpses of him. He left a few comic books around and the far side was one of them. The Far Side is so stupid and it holds a special place in my heart 💚
 
 tysm for reading and/or enjoying the pictures, I hope you are well and cozy and loving yourself.
 
