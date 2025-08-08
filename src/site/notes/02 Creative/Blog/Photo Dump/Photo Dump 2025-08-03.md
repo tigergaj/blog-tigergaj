@@ -63,7 +63,7 @@ is this butch gender euphoria?? Lewa does not have the answer!
 ![mrousavy-2948774235012932158.jpg](/img/user/mrousavy-2948774235012932158.jpg)
 ![IMG_20250803_171818.jpg](/img/user/IMG_20250803_171818.jpg)
 ![IMG_20250803_172508.jpg](/img/user/IMG_20250803_172508.jpg)
-### Baby deer running away <3
+### Baby deer running away 💚
 ![IMG_20250803_173244.jpg](/img/user/IMG_20250803_173244.jpg)
 ![IMG_20250803_173247.jpg](/img/user/IMG_20250803_173247.jpg)
 ### This Oak Tree is freaking big
