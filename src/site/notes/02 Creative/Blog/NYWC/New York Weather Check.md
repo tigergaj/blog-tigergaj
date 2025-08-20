@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/02 Creative/Blog/NYWC/New York Weather Check/","tags":["NYWeatherWatch","YouTube","creativeprojects","blog"]}
+{"dg-publish":true,"permalink":"/02 Creative/Blog/NYWC/New York Weather Check/","tags":["NYWeatherWatch","YouTube","creativeprojects","blog"],"noteIcon":"","created":"2025-04-04T09:59:36.890-04:00"}
 ---
 
 ## Directory

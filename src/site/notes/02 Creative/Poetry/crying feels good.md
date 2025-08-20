@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/02 Creative/Poetry/crying feels good/","tags":["Art","poem"]}
+{"dg-publish":true,"permalink":"/02 Creative/Poetry/crying feels good/","tags":["Art","poem"],"noteIcon":"","created":"2025-08-13T22:44:35.911-04:00"}
 ---
 
 crying feels good

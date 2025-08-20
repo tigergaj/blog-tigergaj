@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/02 Creative/Blog/Photo Dump/Photo Dump 2025-07-30/","tags":["blog","image"]}
+{"dg-publish":true,"permalink":"/02 Creative/Blog/Photo Dump/Photo Dump 2025-07-30/","tags":["blog","image"],"noteIcon":"","created":"2025-07-30T12:29:29.572-04:00"}
 ---
 
 If ur into piss and not listening to Urinal St. Station by the Yellow River Boys are you even into piss

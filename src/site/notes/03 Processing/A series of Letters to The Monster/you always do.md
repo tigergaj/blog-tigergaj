@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/03 Processing/A series of Letters to The Monster/you always do/","tags":["letter","person/TheMonster","queer","come_out"]}
+{"dg-publish":true,"permalink":"/03 Processing/A series of Letters to The Monster/you always do/","tags":["letter","person/TheMonster","queer","come_out"],"noteIcon":"","created":"2025-07-17T21:21:50.132-04:00"}
 ---
 
 when I quit the church, I knew you would be afraid, and that you would let me know, because you always do.

@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/02 Creative/Blog/Photo Dump/Photo Dump 2025-07-17/","tags":["blog","image"]}
+{"dg-publish":true,"permalink":"/02 Creative/Blog/Photo Dump/Photo Dump 2025-07-17/","tags":["blog","image"],"noteIcon":"","created":"2025-07-17T21:21:58.479-04:00"}
 ---
 
 ## some pics from this morning and yesterday, in order!

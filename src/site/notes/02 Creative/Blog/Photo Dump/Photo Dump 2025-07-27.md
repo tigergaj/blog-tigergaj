@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/02 Creative/Blog/Photo Dump/Photo Dump 2025-07-27/","tags":["blog","image"]}
+{"dg-publish":true,"permalink":"/02 Creative/Blog/Photo Dump/Photo Dump 2025-07-27/","tags":["blog","image"],"noteIcon":"","created":"2025-07-27T23:32:07.813-04:00"}
 ---
 
 ## Woke up and bro was tryna eat my creammawheat!!!

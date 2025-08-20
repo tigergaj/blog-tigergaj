@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/03 Processing/A series of Letters to The Monster/A series of Letters to The Monster/","tags":["letter","person/TheMonster","list"]}
+{"dg-publish":true,"permalink":"/03 Processing/A series of Letters to The Monster/A series of Letters to The Monster/","tags":["letter","person/TheMonster","list"],"noteIcon":"","created":"2025-07-09T12:59:23.455-04:00"}
 ---
 
 ## Who is the Monster?
@@ -11,6 +11,7 @@ edited out all mention of her as "mom" to reflect that
 [[03 Processing/A series of Letters to The Monster/You've left me no choice\|03 Processing/A series of Letters to The Monster/You've left me no choice]]
 [[03 Processing/A series of Letters to The Monster/That is not who Lewa is\|That is not who Lewa is]]
 [[03 Processing/A series of Letters to The Monster/The Monster\|The Monster]]
+[[03 Processing/A series of Letters to The Monster/I'm Tired.\|I'm Tired.]]
 ## you always do
 I'd had breasts for months, I'd surely been topless in front of her before this and
 

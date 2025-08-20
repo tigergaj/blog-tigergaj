@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/03 Processing/A series of Letters to The Monster/Encouragement/","tags":["letter","person/mom"]}
+{"dg-publish":true,"permalink":"/03 Processing/A series of Letters to The Monster/Encouragement/","tags":["letter","person/mom"],"noteIcon":"","created":"2025-07-08T12:44:15.038-04:00"}
 ---
 
 in order to interact with me, I believe you need to do three things, you need to learn how to learn, learn how to change, and learn who I am. part of what makes this letter so clumsy to write is that I hate telling people how to think. I don't like insulting someone's intelligence. it's not fair to you and it's not fair in terms of an open dialogue. but you have demonstrated that you wish to be spoon fed. I can't do that, that is not interaction, that is instruction. people were not made for instruction, but rather, collaboration. and I can't collaborate with a learner that wishes to be spoon fed. 

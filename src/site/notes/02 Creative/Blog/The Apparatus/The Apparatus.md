@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/02 Creative/Blog/The Apparatus/The Apparatus/","tags":["weed"]}
+{"dg-publish":true,"permalink":"/02 Creative/Blog/The Apparatus/The Apparatus/","tags":["weed"],"noteIcon":"","created":"2025-04-04T09:59:31.830-04:00"}
 ---
 
 ## Intro

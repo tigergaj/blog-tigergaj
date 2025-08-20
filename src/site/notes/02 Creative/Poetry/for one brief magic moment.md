@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/02 Creative/Poetry/for one brief magic moment/","tags":["poem","Art"]}
+{"dg-publish":true,"permalink":"/02 Creative/Poetry/for one brief magic moment/","tags":["poem","Art"],"noteIcon":"","created":"2025-08-13T22:44:36.083-04:00"}
 ---
 
 I often feel bad, very often, in fact.

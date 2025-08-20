@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/02 Creative/Blog/Photo Dump/Photo Dump 2025-07-16/","tags":["blog","image"]}
+{"dg-publish":true,"permalink":"/02 Creative/Blog/Photo Dump/Photo Dump 2025-07-16/","tags":["blog","image"],"noteIcon":"","created":"2025-07-17T21:21:58.337-04:00"}
 ---
 
 ## good morning!

@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/02 Creative/Shelved Projects/Come Out/Come Out/Frameworks/Everything is Impermanent/","tags":["come_out","CopingMechanism","philosophy"],"dgHomeLink":true,"dgShowBacklinks":true,"dgShowTags":true}
+{"dg-publish":true,"permalink":"/02 Creative/Shelved Projects/Come Out/Come Out/Frameworks/Everything is Impermanent/","tags":["come_out","CopingMechanism","philosophy"],"dgHomeLink":true,"dgShowBacklinks":true,"dgShowTags":true,"noteIcon":"","created":"2025-07-17T21:21:50.418-04:00"}
 ---
 
 ## Impermanence

@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/02 Creative/Crypt of the Serpent King Totally Rules!/Crypt of the Serpent King Totally Rules!/","tags":["blog","creativeprojects"]}
+{"dg-publish":true,"permalink":"/02 Creative/Crypt of the Serpent King Totally Rules!/Crypt of the Serpent King Totally Rules!/","tags":["blog","creativeprojects"],"noteIcon":"","created":"2025-01-02T14:19:51.155-05:00"}
 ---
 
 #### Forward

@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/02 Creative/Blog/NYWC/Lunar Eclipse 2025-03-13/Lunar Eclipse 2025-03-14/","tags":["luna","astronomy","blog"]}
+{"dg-publish":true,"permalink":"/02 Creative/Blog/NYWC/Lunar Eclipse 2025-03-13/Lunar Eclipse 2025-03-14/","tags":["luna","astronomy","blog"],"noteIcon":"","created":"2025-04-04T09:59:38.897-04:00"}
 ---
 
 ## Luna

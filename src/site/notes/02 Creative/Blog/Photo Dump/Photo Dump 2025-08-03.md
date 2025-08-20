@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/02 Creative/Blog/Photo Dump/Photo Dump 2025-08-03/","tags":["image","blog","PhotoDump"]}
+{"dg-publish":true,"permalink":"/02 Creative/Blog/Photo Dump/Photo Dump 2025-08-03/","tags":["image","blog","PhotoDump"],"noteIcon":"","created":"2025-08-13T22:44:35.526-04:00"}
 ---
 
 ### a lone oregano....

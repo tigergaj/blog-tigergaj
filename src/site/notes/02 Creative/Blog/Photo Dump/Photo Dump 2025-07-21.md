@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/02 Creative/Blog/Photo Dump/Photo Dump 2025-07-21/","tags":["blog","image"]}
+{"dg-publish":true,"permalink":"/02 Creative/Blog/Photo Dump/Photo Dump 2025-07-21/","tags":["blog","image"],"noteIcon":"","created":"2025-07-21T08:43:35.763-04:00"}
 ---
 
 ## Went on a walk

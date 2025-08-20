@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/02 Creative/Blog/Photo Dump/Photo Dump 2025-07-18/","tags":["blog","image"]}
+{"dg-publish":true,"permalink":"/02 Creative/Blog/Photo Dump/Photo Dump 2025-07-18/","tags":["blog","image"],"noteIcon":"","created":"2025-07-18T22:18:07.892-04:00"}
 ---
 
 ![IMG_20250718_105506.jpg](/img/user/IMG_20250718_105506.jpg)

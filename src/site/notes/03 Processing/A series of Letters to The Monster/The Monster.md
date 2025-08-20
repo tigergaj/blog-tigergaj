@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/03 Processing/A series of Letters to The Monster/The Monster/","tags":["poem","writing","person/TheMonster"]}
+{"dg-publish":true,"permalink":"/03 Processing/A series of Letters to The Monster/The Monster/","tags":["poem","writing","person/TheMonster"],"noteIcon":"","created":"2025-07-24T14:08:02.780-04:00"}
 ---
 
 The Monster creates
