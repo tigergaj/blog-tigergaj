@@ -9,7 +9,7 @@
 📺[Youtube](https://www.youtube.com/channel/UC9a-QAIyeL_D0g_zOV_f5Xg)
 🪧[Twitch](http://twitch.tv/tigergaj)
 ## About me!
-I'm a 25 year old [[02 Creative/Blog/Lewa's Bio#Gender\|nonbinary]] artist in pursuit of understanding understanding itself, that is my mission. I am quite passionate about art, learning, archivism, and enjoying living my life as much as possible. I'm gonna try to start moving into this blog more. Social Media has so far been a failed experiment and I wish to carve out a place for myself that feels like it's actually mine!
+I'm a 25 year old [[02 Creative/Blog/Lewa's Bio#Gender\|nonbinary]] artist in pursuit of understanding understanding itself, that is my mission. I am quite passionate about art, learning, archivism, and hedonism. I'm gonna try to start moving into this blog more. Social Media has so far been a failed experiment and I wish to carve out a place for myself that feels like it's actually mine!
 
 ---
 ## Gender
