@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/02 Creative/Blog/tigergaj Blog Homepage/","tags":["blog","gardenEntry"],"noteIcon":"","created":"2025-04-04T09:59:36.553-04:00"}
 ---
 
-### Howdy!
+# Howdy!
 
 <div class="transclusion internal-embed is-loaded"><a class="markdown-embed-link" href="/02 Creative/Blog/Lewa's Bio/" aria-label="Open link"><svg xmlns="http://www.w3.org/2000/svg" width="24" height="24" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round" class="svg-icon lucide-link"><path d="M10 13a5 5 0 0 0 7.54.54l3-3a5 5 0 0 0-7.07-7.07l-1.72 1.71"></path><path d="M14 11a5 5 0 0 0-7.54-.54l-3 3a5 5 0 0 0 7.07 7.07l1.71-1.71"></path></svg></a><div class="markdown-embed">
 
@@ -35,31 +35,40 @@ Do I even need to explain it?
 ## Directory
 [[02 Creative/Blog/Photo Dump/Photo Dump\|Photo Dump]]
 [[02 Creative/Poetry/Lewa's Poetry\|Lewa's Poetry]]
-### Come Out
-- [[02 Creative/Shelved Projects/Come Out/Come Out/Frameworks/Everything is Impermanent\|Everything is Impermanent]]
-- [[02 Creative/Poetry/I've been looking at this person in the mirror\|I've been looking at this person in the mirror]]
-### My most recent post:
+## Come Out
+[[02 Creative/Shelved Projects/Come Out/Come Out/Frameworks/Everything is Impermanent\|Everything is Impermanent]]
+[[02 Creative/Poetry/I've been looking at this person in the mirror\|I've been looking at this person in the mirror]]
+### My most recent posts:
 
-<div class="transclusion internal-embed is-loaded"><a class="markdown-embed-link" href="/02 Creative/Blog/Photo Dump/Photo Dump/" aria-label="Open link"><svg xmlns="http://www.w3.org/2000/svg" width="24" height="24" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round" class="svg-icon lucide-link"><path d="M10 13a5 5 0 0 0 7.54.54l3-3a5 5 0 0 0-7.07-7.07l-1.72 1.71"></path><path d="M14 11a5 5 0 0 0-7.54-.54l-3 3a5 5 0 0 0 7.07 7.07l1.71-1.71"></path></svg></a><div class="markdown-embed">
-
-
+<div class="transclusion internal-embed is-loaded"><a class="markdown-embed-link" href="/02 Creative/Poetry/Let my ask you a riddle/" aria-label="Open link"><svg xmlns="http://www.w3.org/2000/svg" width="24" height="24" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round" class="svg-icon lucide-link"><path d="M10 13a5 5 0 0 0 7.54.54l3-3a5 5 0 0 0-7.07-7.07l-1.72 1.71"></path><path d="M14 11a5 5 0 0 0-7.54-.54l-3 3a5 5 0 0 0 7.07 7.07l1.71-1.71"></path></svg></a><div class="markdown-embed">
 
 
-# Directory
-[[02 Creative/Blog/Photo Dump/Photo Dump#Why Here?\|Why Here?]]
-[[02 Creative/Blog/Photo Dump/Photo Dump#Ground Rules\|Ground Rules]]
-[[02 Creative/Blog/Photo Dump/Photo Dump#Archive\|Archive]]
-[[02 Creative/Blog/Photo Dump/Photo Dump#Most Recent post\|Most Recent Post]]
-## Why Here?
-I've always wanted to participate in instagram. and for a time, in small doses, I did. But as I've become more conscious of the greater picture and the niche that instagram holds, I've been wary of uploading any data to their platform. I deleted the app from my phone and when I reinstalled it to make a mutual aid post for a friend I found myself barraged with notifications for an ex. It is now blatantly obvious to me that platforms like instagram, facebook, and youtube are just propaganda. To make you depressed, anxious, hopeless. Whatever stops you from doing something about it. I would love to live in a world where computers actually helped us come together, but that is not the world we live in.  So when bluesky announced that they are going to concede to the new EU regulations requiring every user that wishes to upload any sort of nudity whatsoever to submit their government documents I knew that I needed to move all my pictures somewhere else. That place is now here :)
-## Ground Rules
-- These images are not to be taken and used without my permission.
-- Do not be a dick.
-- Nudity will be mixed in intermittently and I will not attempt to censor it. Nudity is not sexual, bodies are not sexual. A culture uncomfortable with nudity is a culture uncomfortable with bodies, and we're made of those, probably a good idea to not be afraid of them.
-- I am not above IP banning you if you are weird, you too can be free from fascism by posting your nudes, (or being naked, I'm currently writing this 100% nude sitting in the mid july morning sun)
-- fuck the rules, stop the hoopla, free Palestine.
 
-## Most Recent Dump:
+
+
+Let me ask you a riddle
+
+I often wonder why I don't cry more
+I was born a happy child
+I feel so strongly, all the time
+
+what am I? 
+
+I wonder why I didn't cry today
+raised by someone with a piece missing
+anger, sadness, grief, love, pain, hate
+
+what am I? 
+
+I wonder why I'm not crying now.
+I feel like I have a piece missing
+I feel alone
+
+what am I? 
+
+
+</div></div>
+
 
 <div class="transclusion internal-embed is-loaded"><a class="markdown-embed-link" href="/02 Creative/Blog/Photo Dump/Photo Dump 2025-08-20/" aria-label="Open link"><svg xmlns="http://www.w3.org/2000/svg" width="24" height="24" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2" stroke-linecap="round" stroke-linejoin="round" class="svg-icon lucide-link"><path d="M10 13a5 5 0 0 0 7.54.54l3-3a5 5 0 0 0-7.07-7.07l-1.72 1.71"></path><path d="M14 11a5 5 0 0 0-7.54-.54l-3 3a5 5 0 0 0 7.07 7.07l1.71-1.71"></path></svg></a><div class="markdown-embed">
 
@@ -142,24 +151,6 @@ I am **NOT** sorting this shit! fuck you, look at my dope pics
 ![Screenshot_20250820-091535.png](/img/user/Screenshot_20250820-091535.png)
 ![IMG_0280.jpg](/img/user/IMG_0280.jpg)
 ![[VID_20250813_203614.mp4]]
-
-
-</div></div>
-
-
-## Archive
-[[02 Creative/Blog/Photo Dump/Photo Dump 2025-07-16\|Photo Dump 2025-07-16]]
-[[02 Creative/Blog/Photo Dump/Photo Dump 2025-07-17\|Photo Dump 2025-07-17]]
-[[02 Creative/Blog/Photo Dump/Photo Dump 2025-07-18\|Photo Dump 2025-07-18]]
-[[02 Creative/Blog/Photo Dump/Photo Dump 2025-07-19\|Photo Dump 2025-07-19]]
-[[02 Creative/Blog/Photo Dump/Photo Dump 2025-07-21\|Photo Dump 2025-07-21]]
-[[02 Creative/Blog/Photo Dump/Photo Dump 2025-07-24\|Photo Dump 2025-07-24]]
-[[02 Creative/Blog/Photo Dump/Photo Dump 2025-07-27\|Photo Dump 2025-07-27]]
-[[02 Creative/Blog/Photo Dump/Photo Dump 2025-07-30\|Photo Dump 2025-07-30]]
-[[02 Creative/Blog/Photo Dump/Photo Dump 2025-08-03\|Photo Dump 2025-08-03]]
-[[02 Creative/Blog/Photo Dump/Lewa is like if a Hobbit and an Elf had a baby\|Lewa is like if a Hobbit and an Elf had a baby]]
-[[02 Creative/Blog/Photo Dump/Photo Dump 2025-08-08\|Photo Dump 2025-08-08]]
-[[02 Creative/Blog/Photo Dump/Photo Dump 2025-08-20\|Photo Dump 2025-08-20]]
 
 
 </div></div>
